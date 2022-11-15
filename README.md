@@ -26,25 +26,3 @@ fasfd
 sdf asdfasdf
 
 as df
-asdf
- a
-sfdsafdfginfgn
-asfasf assdaf
-sdf sadf
-sad fsdaasaasdfsadfssadfasdfdf
-asdfas
-asdf 
-asdf
- as
-f
-asdf
-asdfasdf
-asdf asdf
-
-asfd
- sa
-fd
-sadf
-
-sadf
-asdf
